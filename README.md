@@ -1,6 +1,7 @@
                                  ㅤㅤㅤㅤㅤㅤ     ⊹ ࣪ ˖ㅤ' 5pebs % sasha % firebrandd . '
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/70169e6a-f5ea-4359-a57b-a7e0e799f703)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ          ㅤㅤㅤ![image](https://github.com/user-attachments/assets/60f40825-3eb3-4543-8249-a7a72068c12a)
+
 
 
 
@@ -14,7 +15,8 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[roadblock](https://www.roblox.com/users/1877300559/profile)ㅤㅤ⟡ㅤㅤ[rentry * MAIN](https://rentry.co/interlinked-shadow)ㅤㅤ୨ৎㅤㅤ[pronouns page !](https://en.pronouns.page/@artiyangee)ㅤㅤ⟡ㅤㅤ[tikto](https://tiktok.com/@nullpris)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdiscord ;; sulkpris ..
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤdiscord ;; mesumorsu .. 
+
 ㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
@@ -28,21 +30,9 @@
 - regretevator
 - PHIGHTING! **(i DON'T like the fandom)**
 - cats are liquid
-- dandys world
+- dandys world **( i dont support the creators)**
 - pressure
 - doors
 - fundamental paper education **(i DON'T like the fandom)**
 - BEARSTAR
-- I don't even know anymore manㅤ
-
-
-
-
-
-
-
-
-
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/92e3e22e-2399-4d8b-bbf7-434eb9fb36d2)
+- I don't even know anymore man
